@@ -25,7 +25,7 @@ Dominicana
 2.\
 3.\
 
-### Habilidades:
+## Habilidades:
 -Photoshop\
 -Ilustrdor\
 -InDesing\
